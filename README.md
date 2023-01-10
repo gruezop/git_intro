@@ -1,1 +1,2 @@
 Patricia Gruezo
+gruezop@oregonstate.edu
